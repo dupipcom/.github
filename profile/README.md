@@ -13,4 +13,5 @@ A gift,a compliment, an act of kindness, a smile of joy, are always multiplie
 together.
 
 https://dpip.cc/invest
-HPL3-ECO-AND-ANC 2021
+HPL3-ECO-A-ND-NC (CC) 2021
+
